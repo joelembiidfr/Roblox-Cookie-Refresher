@@ -1,2 +1,3 @@
-# Roblox-Cookie-Refresher
-made by BuggyDuggy
+THIS TOOL REFRESHES YOUR COOKIES!!
+
+MADE BY BUGGYDUGGY ON DISCORD!
